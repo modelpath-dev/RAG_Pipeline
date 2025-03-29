@@ -1,0 +1,18 @@
+# What To Look For When Buying A Used Car
+
+Buying a used car is a great, cost-efficient way of owning a vehicle. However, these cars come with history which you need to fully understand before you make a purchase. That way you will not have any nasty surprises or occur any future costs for repairs. We’ve outlined just a few things you should look for when buying a used car to ensure you are making an informed purchase decision.
+
+## Things to look for when buying a used car:
+
+1.  **Check the mileage -** Mileage is a good indicator of how frequently the car has been used. The less miles, the longer the car will last because it has less wear and tear. However, this often means that they are more expensive than a car with a higher mileage. Therefore, you will need to decide what you prioritise more, a low mileage or a low price point, to find the right used car for you.
+2.  **Inspect the condition of the car -** You should ask to look at both the outside and inside of the car before you make a purchase. Check for things like scratches, tears, rust, or anything that could indicate future maintenance costs. You should also always request a test drive so that you can see if things like the headlights, brakes and steering wheel are all in working order.
+3.  **Review how safe the car is -** Car safety is paramount. Testing that the vehicle is safe enough to drive is not only important for your own safety, but for other drivers on the road. You should check the tyres, seatbelts, airbags and windscreen wipers, as well as any other additional safety features listed in the vehicle description.
+4.  **Check the documents -** If you are purchasing from a private seller in particular then it's imperative that you check all of their documents are in order. From the registration document, to the last MOT report, it's important to thoroughly check all information so that you are not being scammed.
+5.  **Has it got the features you are looking for? -** Before you begin looking at cars, it is worth noting what key features you need. For example, if you are looking to buy a used family car then a large boot space could be a high priority over seat warmers. Creating this list of ‘must haves’ allows you to be more focused during your search so that you can find a car that truly suits your everyday needs and lifestyle.
+6.  **Check the engine -** Some of the biggest problems can be hidden under the car hood so you need to ensure you thoroughly inspect the car engine. The best way to do this is by seeing the car yourself - you should not buy a car online without inspecting it first. Check the oil levels, engine noise and clutch if you are buying a used manual car.
+
+## Where is the best place to buy a used car?
+
+A trusted used dealership is the best place to buy a used car. This is because you are protected under the Consumer Rights act. Traders have to ensure the car is fit for sale, offer an extensive warranty and offer repairs or refunds. However, this does mean that buying a used car from a dealership could be more expensive than from a private seller. Although these cars have been thoroughly checked which means you should have less maintenance costs, compared to buying online or from a private seller where you may incur the cost of future repairs.
+
+If you are looking to buy a used MG car then [find an approved used MG car here](https://www.mg.co.uk/used-cars) or [visit your local dealership.](https://www.mg.co.uk/dealers)
