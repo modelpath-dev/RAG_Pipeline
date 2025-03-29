@@ -27,5 +27,3 @@ Install the necessary libraries using pip:
 ```bash
 pip install openai langchain langchain_openai langchain_chroma chromadb gradio numpy scikit-learn pandas plotly python-dotenv
 
-##Author
-* Chandan Kumar
